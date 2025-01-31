@@ -1,2 +1,2 @@
 # Hoja-de-vida
-Hoja de vida y protafolio actualizado
+Hoja de vida y portafolio actualizado
